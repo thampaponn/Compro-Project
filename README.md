@@ -16,6 +16,8 @@
 # Youtube
   >https://youtu.be/_vu-2YZZsYE
 # Poster
+  (https://user-images.githubusercontent.com/88426179/167290119-95e79118-59d8-497e-bfed-d8c0e66c87cf.png)
+
 ### สมาชิก
 ---
 
